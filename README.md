@@ -1,6 +1,3 @@
 # Demo project README
 
-This is a special readme file. 
-
-
-you shouldnt never trust in hollywood..
+i am standing on the wall felling 10 feet tall..all you maggot put your hands on the air.....
